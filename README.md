@@ -1,1 +1,0 @@
-# itstrandsme.github.io
